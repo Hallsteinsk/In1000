@@ -1,0 +1,3 @@
+a) Litt vanskeligere innlevering denne gangen, men interesant å se på objekter i forskjellige filer. 
+b) Jeg brukte ca 45min/1time per oppgave. Ca 4 til 5 timer ish... 
+	Jeg er ganske sikker på at jeg fikk til alle oppgavene. 
